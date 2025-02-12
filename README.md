@@ -13,7 +13,7 @@
  
 📫 How to reach me **praveenkumar.palani7@gmail.com**
   
-📄 Know about my experiences [Resume](https://drive.google.com/file/d/1r0sIaloBGaDRh080VhfpE6pX1VGi7pjm/view?usp=drivesdk)
+📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Fq4XJQzgEE_O4z-Vp1MCdG6AXNBFUYuc/view?usp=drivesdk)
 
 
 
